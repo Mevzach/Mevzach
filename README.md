@@ -13,5 +13,7 @@
    
    CONTACT INFO-
 Telegram: @Mevzach
+
 Discord: Mev#3637
+
 E-Mail: arrel.zachariah@gmail.com
